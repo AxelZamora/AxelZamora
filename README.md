@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **canisma303@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1iGSD6dH9cbqYf2mJMG3-E676u8Ui4tHd/view](https://drive.google.com/file/d/1iGSD6dH9cbqYf2mJMG3-E676u8Ui4tHd/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
